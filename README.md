@@ -1,1 +1,1 @@
-# Boston-Consulting-Group-PowerCo
+# Boston Consulting Group and PowerCo
